@@ -1,1 +1,1 @@
-# JogoParalelo---Poney-s-Adventures
+# JogoParalelo-Poney Adventures
